@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @Staan-ratoo-tweek-piip
+- 👋 Hi, I’m @comfyy
+
 - 👀 I’m interested in south park lps 
 - 🌱 I’m currently learning ur mom
 - 💞️ I’m looking to collaborate on idk:)
